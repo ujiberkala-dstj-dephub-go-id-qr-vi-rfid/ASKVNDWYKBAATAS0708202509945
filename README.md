@@ -1,1 +1,1 @@
-# ASKVNDWYKBAATAS0708202509945
+#  https://ujiberkala-dstj-dephub-go-id-qr-vi-rfid.github.io/ASKVNDWYKBAATAS0708202509945/
